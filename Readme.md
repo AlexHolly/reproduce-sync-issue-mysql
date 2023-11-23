@@ -1,0 +1,1 @@
+Details: https://github.com/Mimetis/Dotmim.Sync/discussions/1051#discussioncomment-7645840
